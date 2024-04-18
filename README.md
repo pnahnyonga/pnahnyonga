@@ -2,7 +2,7 @@
 - 👀 I’m interested in databases, software development, Programing
 - 🌱 I’m currently learning Python programing
 - 💞️ I’m looking to collaborate on projects with start-ups, get a job in the above listen fields
-- 📫 How to reach me ...via email: pnahnyonga@yahoo.com
+- 📫 How to reach me ...via email: pnahnyonga@yahoo.com,https://www.linkedin.com/in/prisca-nahnyonga-71a38137/,
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
